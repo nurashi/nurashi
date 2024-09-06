@@ -1,4 +1,1 @@
-About Me:
-fucking trash
-
 
