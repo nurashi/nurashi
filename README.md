@@ -1,1 +1,1 @@
-build things is life
+build dumb things is life
